@@ -1,0 +1,2 @@
+# jangandibuka
+yah malah dibuka
